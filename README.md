@@ -1,3 +1,8 @@
-<center><img src="https://neckdoll.zombie.jp/material/icon/tejyou/icon-tejou-b001.gif">
-•   big ass wip
-<br>•   test</center>
+<img src="https://neckdoll.zombie.jp/material/icon/tejyou/icon-tejou-b001.gif">
+<h3>🌀 I AM ALL, BUT WHAT AM I?</h3>
+<br>— byi to be added eventually......
+<br>— feel free 2 interact, im a pretty friendly guy
+<br>— learn more about me thru my strawpage<3
+  <br><h3>🫀 ANOTHER NUMBER THAT
+    <br>ISN'T EQUAL TO ANY OF YOU</h3>
+  <br><br><img src="https://files.catbox.moe/u0oj80.gif">
