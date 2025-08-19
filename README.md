@@ -5,4 +5,4 @@
 <br>— learn more about me thru my strawpage<3
   <br><h3>🫀 ANOTHER NUMBER THAT
     <br>ISN'T EQUAL TO ANY OF YOU</h3>
-  <br><br><img src="https://files.catbox.moe/u0oj80.gif">
+  <br><img src="https://files.catbox.moe/u0oj80.gif">
