@@ -8,4 +8,4 @@
     <br>ISN'T EQUAL TO ANY OF YOU</h3>
   <img src="https://neckdoll.zombie.jp/material/line/key/line-nankinjyou-001.gif">
   <img src="https://files.catbox.moe/u0oj80.gif">
-  ![](https://hit.yhype.me/github/profile?account_id=213547306)
+
