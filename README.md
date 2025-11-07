@@ -9,4 +9,4 @@
   <p align="center"><img src="https://neckdoll.zombie.jp/material/line/key/line-nankinjyou-001.gif">
   <p align="center"><img src="https://files.catbox.moe/u0oj80.gif">
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=fleadude&color=645da1&label=.˚♩♫)</p>
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=fleadude&color=080808&label=.˚♩♫)</p>
