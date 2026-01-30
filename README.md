@@ -2,7 +2,7 @@
 <h3 align="center">🌀 I AM ALL, BUT WHAT AM I? 𓇼˖ . ݁</h3>
 <p align="center"><br>— byi to be added eventually...... someday...
 <br>— always feel free 2 interact, im a pretty friendly dude
-<br>— other queer trans guys lmk if ur down to fuh 🫶
+<br>— other freaky trans guys lmk if ur down to fuh 🫶
 <br>— learn more about me thru my strawpage<3
   <br><br><h3 align="center">.𖥔 ݁ ˖ ANOTHER NUMBER THAT
     <br>ISN'T EQUAL TO ANY OF YOU 🫀</h3>
