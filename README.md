@@ -9,6 +9,6 @@
 
   <p align="center"><img src="https://neckdoll.zombie.jp/material/line/key/line-nankinjyou-001.gif">
   <p align="center"><img src="https://files.catbox.moe/u0oj80.gif"></br>
-   <a href="https://fleaslist.straw.page/">18 ONLY, BANNED INFO</a> 😏
+   <a href="https://fleaslist.straw.page/">18 ONLY, banned info & byi</a> 😏
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=fleadude&color=080808&label=.˚♩♫)</p>
