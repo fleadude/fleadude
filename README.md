@@ -6,7 +6,7 @@
 <br>— learn more about me thru my strawpage<3
   <br><br><h3 align="center">.𖥔 ݁ ˖ ANOTHER NUMBER THAT
     <br>ISN'T EQUAL TO ANY OF YOU</h3>
-     <a href="https://fleaslist.straw.page/">18 ONLY, banned info & byi</a> 😏
+     <p align="center"><a href="https://fleaslist.straw.page/">18 ONLY, banned info & byi</a> 😏
 
   <p align="center"><img src="https://neckdoll.zombie.jp/material/line/key/line-nankinjyou-001.gif">
   <p align="center"><img src="https://files.catbox.moe/u0oj80.gif"></br>
