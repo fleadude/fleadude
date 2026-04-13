@@ -11,4 +11,4 @@
   <p align="center"><img src="https://files.catbox.moe/u0oj80.gif"></br>
    <a href="https://fleaslist.straw.page/">18 ONLY, SEXUAL INFO</a> 😏
 
-<p align="center:>![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=fleadude&color=080808&label=.˚♩♫)</p>
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=fleadude&color=080808&label=.˚♩♫)</p>
