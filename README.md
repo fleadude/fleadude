@@ -6,7 +6,7 @@
 <br>— learn more about me thru my strawpage<3
   <br><br><h3 align="center">.𖥔 ݁ ˖ ANOTHER NUMBER THAT
     <br>ISN'T EQUAL TO ANY OF YOU</h3>
-  <p align=center"><a href="https://fleadude02.straw.page/">basic info abt me
+  <p align="center"><a href="https://fleadude02.straw.page/">basic info</a> abt me
      <p align="center"><a href="https://fleaslist.straw.page/">illegal info & byi</a> 18+ ONLY 😏
       <p align="center"><a href="https://thehornedone.straw.page/">online dionysus shrine</a> :3 little places 2 put it so<br> 
         ill drop it here if anyones curious
