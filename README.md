@@ -3,7 +3,7 @@
 <p align="center"><br>
 <br>— always feel free 2 interact, im a pretty friendly dude
 <br>— other freaky trans ppl lmk if ur down to fuh 🫶
-<br>— learn more about me thru my strawpage<3 u can send me messages/images through it
+<br>— learn more about me thru my strawpage<3 u can send me messages/art through it
   <br><br><h3 align="center">.𖥔 ݁ ˖ ANOTHER NUMBER THAT
     <br>ISN'T EQUAL TO ANY OF YOU</h3>
   <p align="center"><a href="https://fleadude02.straw.page/">basic info</a> abt me
