@@ -12,4 +12,4 @@
         ill drop it here if anyones curious
   <p align="center"><img src="https://s4.ezgif.com/tmp/ezgif-431e9dc56bd133fd-split/tumblr_1436723b4e85eb4c12642414e30709fb_4de54f27_100.png-6ad176b1a4dd0.png"><img src="https://s4.ezgif.com/tmp/ezgif-48ab70d894a41238.gif"><img src="https://s4.ezgif.com/tmp/ezgif-4fcb156920bd2f2e.webp"><img src="https://s4.ezgif.com/tmp/ezgif-47ded619c22935c7.webp"></br>
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=fleadude&color=080808&label=.˚♩♫)</p>
+![](https://komarev.com/ghpvc/?username=fleadude&color=080808&label=.˚♩♫)</p>
