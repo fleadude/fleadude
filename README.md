@@ -11,5 +11,4 @@
       <p align="center"><a href="https://thehornedone.straw.page/">online dionysus shrine</a> :3 little places 2 put it so<br> 
         ill drop it here if anyones curious
   <p align="center"><img src="https://s8.ezgif.com/tmp/ezgif-8cef73d0618baa86.gif"><br><img src="https://i.imgur.com/13gSTYZ.gif"><img src="https://s8.ezgif.com/tmp/ezgif-8a33efc32b3d25f1.png"><img src="https://s8.ezgif.com/tmp/ezgif-8b5ad26dfa162772.gif"><img src="https://s8.ezgif.com/tmp/ezgif-8ac189b17d0f9fb5.png"></br>
-
-<p align="center">![Page counter](https://komarev.com/ghpvc/?username=fleadude&color=080808&label=.˚♩♫)</p>
+[Page counter](https://komarev.com/ghpvc/?username=fleadude&color=080808&label=.˚♩♫)</p>
